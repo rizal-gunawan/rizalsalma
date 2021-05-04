@@ -1,0 +1,2 @@
+# rizalsalma
+tugas uts
